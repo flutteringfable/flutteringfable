@@ -8,7 +8,7 @@ i'm REALLY not good at coding so this userbox is just gonna be off center for no
 
 
 <p align="center">
-i'm usually just lurking!! if i'm offtab or not responding just whisper me, chances are i'll respond in a minute or two ^^
+i'm usually just lurking, but i don't mind chatting!! if i'm offtab or not responding just whisper me, chances are i'll respond in a minute or two ^^
 
 <p align="center">
 any fandoms can interact, i don't really care lol. i'm not super uptight about that kinda stuff so long as you're polite and chill. i personally really love genshin/hsr and utdr!!
