@@ -20,4 +20,4 @@ proshippers and anything in that same vein please stay away. i can't control you
 ASK ME ABOUT MY OC X CANONS PLEASE PLEASE PLEASE PLEASE PLE
 
 <p align="center">
-i try to keep my other platforms pretty separate. i don't like strangers perceiving me in real time.... ^^;
+i try to keep my other platforms pretty separate. i don't like strangers perceiving me... ^^;
