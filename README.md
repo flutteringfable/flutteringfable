@@ -11,10 +11,10 @@ i'm REALLY not good at coding so this userbox is just gonna be off center for no
 i'm usually just lurking, but i don't mind chatting!! if i'm offtab or not responding just whisper me, chances are i'll respond in a minute or two ^^
 
 <p align="center">
-any fandoms can interact, i don't really care lol. i'm not super uptight about that kinda stuff so long as you're polite and chill. i personally really love genshin/hsr and utdr!!
+any fandoms can interact, i don't really care lol. i'm not super uptight about that kinda stuff so long as you're polite and chill. i personally really love genshin/hsr, tadc and utdr!!
 
 <p align="center">
-proshippers and anything in that same vein please stay away. i can't control you, but i would really prefer not to interact.
+proshippers and anything in that same vein please stay away. i can't control you, but i would really prefer not to interact. also i don't typically friend people when i initially meet them. i gotta get to know you a bit first.
 
 <p align="center">
 ASK ME ABOUT MY OC X CANONS PLEASE PLEASE PLEASE PLEASE PLE
