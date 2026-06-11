@@ -14,7 +14,7 @@ i'm usually just lurking, but i don't mind chatting!! if i'm offtab or not respo
 any fandoms can interact, i don't really care lol. i'm not super uptight about that kinda stuff so long as you're polite and chill. i personally really love genshin/hsr, tadc and utdr!!
 
 <p align="center">
-proshippers and anything in that same vein please stay away. i can't control you, but i would really prefer not to interact. also i don't typically friend people when i initially meet them. i gotta get to know you a bit first.
+proshippers and anything in that same vein please stay away. i can't control you, but i would really prefer not to interact. also i don't typically friend people who randomly send me reqs. i gotta get to know you a bit first.
 
 <p align="center">
 ASK ME ABOUT MY OC X CANONS PLEASE PLEASE PLEASE PLEASE PLE
