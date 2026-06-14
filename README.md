@@ -1,5 +1,5 @@
 <p align="center">
-  fable!! | any prns, he/they/+neos preferred | adult
+  fable!! | any prns, it/they/+neos preferred | adult
 
   
   ![a userbox with sans from undertale on the left side, with snowdin's box road as the background. the text reads "this user remembers youre genocides"](https://64.media.tumblr.com/e40ad815b3450c7af2e459493a1cabd1/5646f6a407cfa25e-0a/s250x400/38f1246bf41fe5f6d96d4e76de6f47c982031f7e.pnj) 
